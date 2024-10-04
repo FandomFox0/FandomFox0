@@ -1,4 +1,6 @@
-## Hi there 👋
+## 🌸 HELLO 🌸
+
+![image](https://github.com/user-attachments/assets/cd7e3028-8f5d-4ebf-bf97-25dd1065ef0b)
 
 <!--
 **FandomFox0/FandomFox0** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
